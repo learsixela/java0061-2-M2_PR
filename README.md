@@ -2,8 +2,9 @@
 
 ## israel alexis palma quezada
 
-## Dani C. R.
+## Daniel C. R.
 
- 
+
+
 
 
