@@ -1,5 +1,10 @@
 # Pull Request
 
-## israel palma
+## israel alexis palma quezada
 
 ## Daniel C. R.
+
+
+
+
+
